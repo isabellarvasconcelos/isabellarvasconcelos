@@ -1,6 +1,6 @@
 🚀 Analista de Projetos & IA aplicada a processos
 
-💼 Experiência: Sucesso do cliente (suporte e implementação de sistemas) e projetos
+💼 Experiência: Sucesso do cliente (suporte e implementação de sistemas) e Projetos
 
 📊 Formação: Análise e Desenvolvimento de Sistemas
 
