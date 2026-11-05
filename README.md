@@ -1,10 +1,10 @@
-🚀 Analista de Projetos & IA aplicada a processos
+Analista de Projetos e IA aplicada a processos
 
-💼 Experiência: Sucesso do cliente (suporte e implementação de sistemas) e Projetos
+Experiência: Sucesso do cliente (suporte e implementação de sistemas) e Projetos
 
-📊 Formação: Análise e Desenvolvimento de Sistemas
+Formação: Análise e Desenvolvimento de Sistemas
 
-📫 Fale comigo pelo [LinkedIn](https://www.linkedin.com/in/isabella-vasconcelos-0425ba214/) ou por [e-mail](mailto:isabellarvasconcelos@gmail.com).
+Fale comigo pelo [LinkedIn](https://www.linkedin.com/in/isabella-vasconcelos-0425ba214/) ou por [e-mail](mailto:isabellarvasconcelos@gmail.com).
 
 <br>
 
