@@ -1,12 +1,12 @@
 <div align="center">
 
-Analista de Projetos e IA aplicada a processos
+Project Analyst and AI applied to processes
 
-Experiência: Sucesso do cliente (suporte e implementação de sistemas) e Projetos
+Experience: Customer Success (system support and implementation) and Projects
 
-Formação: Análise e Desenvolvimento de Sistemas
+Education: Systems Analysis and Development
 
-Fale comigo pelo [LinkedIn](https://www.linkedin.com/in/isabella-vasconcelos-0425ba214/) ou por [e-mail](mailto:isabellarvasconcelos@gmail.com).
+Reach me on [LinkedIn](https://www.linkedin.com/in/isabella-vasconcelos-0425ba214/) or via [e-mail](mailto:isabellarvasconcelos@gmail.com).
 
 <br>
 
