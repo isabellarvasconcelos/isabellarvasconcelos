@@ -8,20 +8,7 @@ Education: Systems Analysis and Development
 
 Reach me on [LinkedIn](https://www.linkedin.com/in/isabella-vasconcelos-0425ba214/) or via [e-mail](mailto:isabellarvasconcelos@gmail.com).
 
-<details>
-<summary>Versão em português</summary>
 
-<br>
-
-Analista de Projetos e IA aplicada a processos
-
-Experiência: Sucesso do cliente (suporte e implementação de sistemas) e Projetos
-
-Formação: Análise e Desenvolvimento de Sistemas
-
-Fale comigo pelo [LinkedIn](https://www.linkedin.com/in/isabella-vasconcelos-0425ba214/) ou por [e-mail](mailto:isabellarvasconcelos@gmail.com).
-
-</details>
 
 <br>
 
